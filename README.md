@@ -1,1 +1,1 @@
-สู้ๆนะเตย
+Have a nice day!!
