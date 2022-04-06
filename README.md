@@ -1,1 +1,1 @@
-my lover so cute~~~
+I like you, but you so impassible
